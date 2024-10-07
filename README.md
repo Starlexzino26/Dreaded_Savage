@@ -1,4 +1,4 @@
-# Dreaded_Savage💀😈
+# starlex 💀😈
 🌍👨‍💻😈👻🔥🌚
    <a><img src='https://i.imgur.com/LyHic3i.gif'/></a><a><img src='https://telegra.ph/file/880fbc3c4010707795329.jpg'/></a>
 <p align="center">
@@ -22,7 +22,7 @@
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a><a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 <p align="center">
 
- ## DREADED_SAVAGE Deployment Methods
+ ## starlexzino Deployment Methods
 
 ### 1. FORK THIS REPO
 
@@ -51,16 +51,10 @@
 <br>
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a><a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
-* [🧑‍💻 Follow Dreaded_Savage Whatsapp Channel🧑‍💻](https://whatsapp.com/channel/0029VagAm55K5cDIUJ7JZ71N)
-
-* [👻 Join Dreaded_Savage Telegram Group ](https://t.me/Liljaysavage)
-
-* [🫴 Join Public Group 🌍](https://chat.whatsapp.com/F35crRpTP6cImynsyq8J5s)
-
   <a><img src='https://i.imgur.com/LyHic3i.gif'/></a><a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
   
 
-- *𝙳𝚛𝚎𝚊𝚍𝚎𝚍_𝚂𝚊𝚟𝚊𝚐𝚎 is not made by `WhatsApp Inc.` Sometimes or misusing the bot might `ban` your `WhatsApp account!`*
+- *starlex is not made by `WhatsApp Inc.` Sometimes or hosting the bot might `ban` your `WhatsApp account!`*
 - *In that case, I'm not responsible for banning your account.*
 - *Use 𝙳𝚛𝚎𝚊𝚍𝚎𝚍_𝚂𝚊𝚟𝚊𝚐𝚎 at your own risk by keeping this warning in mind.*
   
@@ -71,6 +65,6 @@
 
 ## Community and Support
 
-FOLLOW DREADED SAVAGE WA-BOT WHAtSAPP CHANNEL FOR MORE UPDATES
-[![JOIN WHATSAPP GROUP](https://raw.githubusercontent.com/Neeraj-x0/Neeraj-x0/main/photos/suddidina-join-whatsapp.png)](https://whatsapp.com/channel/0029VagAm55K5cDIUJ7JZ71N))
+FOLLOW starlex WA-BOT WHAtSAPP CHANNEL FOR MORE UPDATES
+
 
